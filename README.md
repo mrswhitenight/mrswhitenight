@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mrswhitenight
 - 👀 I’m interested in business operations and organizational health
-- 🌱 I’m currently learning about 3D printing
+- 🌱 Growing into 3D printing skills
 - 🗣 you can find me using @mrswhitenight on twitter, insta, and clubhouse too!
 
 <!---
